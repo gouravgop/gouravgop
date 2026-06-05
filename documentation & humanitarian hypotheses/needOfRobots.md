@@ -14,6 +14,9 @@ As we are more conscious and intelligent then most animals that's why we have so
 
 But even now we haven't solved the problem of human connection ( sex, love, romance in general sexual resources) and it leads to problems like loneliness, beauty and sexual content addiction. If we actually want to solve these problems then the only solution are robots and artificial womb.
 
+### LIST OF PROBLEMS SOLVED BY ARTIFICIAL WOMB AND ROBOTS
+1. END OF SEXUAL HEGEMONEY AND DEROGATORY GLAMOURAZATION, CAPITALIZTION & WEAPONIZATION OF INTIMACY (SEX, ROMANCE & LOVE)
+2. S
 
 ---------------------------------------
 Do you agree if I say in case of heterosexual relationships ( male-female) sex/love is a resource hence always a commercialised entity?
